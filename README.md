@@ -14,7 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-# 👋 Hi, I'm Muhammad Ali Mughal  
+# 👋 Hi, I'm MUHAMMAD ALI MUGHAL  
 ### Student at Allama Iqbal Open University (AIOU) | Aspiring Web Developer 🚀
 
 ---
